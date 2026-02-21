@@ -1,1 +1,2 @@
-muito foda
+muito foda slk
+pena que é africano
